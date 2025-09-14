@@ -1,3 +1,5 @@
+![just my header hehe](https://github.com/user-attachments/assets/f98e2719-ec2f-46b7-b2f8-04f3c587ffb5 "meow")
+
 sp: https://angelfilly.straw.page
 
 pt sp: https://angelponytown.straw.page/
