@@ -50,3 +50,7 @@ pt sp: https://angelponytown.straw.page/
 ★ baibai!
 
 ⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
+
+this part is just blinkes lololol
+
+![blinkiesCafe-SD](https://github.com/user-attachments/assets/8994efcd-18bb-4bd7-a733-77a2de2f2430)![blinkiesCafe-Li](https://github.com/user-attachments/assets/bbe442b0-2565-46eb-af2d-be48bd041676) ![blinkiesCafe-vy](https://github.com/user-attachments/assets/75d67dce-cfc8-49e2-98ea-52479c9ebbb7)![blinkiesCafe-v6](https://github.com/user-attachments/assets/a979cc9a-1c35-415b-8ece-553d75075525) ![blinkiesCafe-K9](https://github.com/user-attachments/assets/a291acb8-c19d-42b8-ab1f-58c50f1e95a6) ![blinkiesCafe-zp](https://github.com/user-attachments/assets/5005f5f0-b46d-4b69-b512-a181de0e851d)![blinkiesCafe-FU](https://github.com/user-attachments/assets/1aa94f3e-e720-43a5-a603-8b1a52b66281)![blinkiesCafe-j8](https://github.com/user-attachments/assets/45b5cab0-0270-407d-8eb4-815060b7df3a)![blinkiesCafe-wX](https://github.com/user-attachments/assets/1435d469-f0dd-4e8a-ab29-343365395e37)![blinkiesCafe-f0](https://github.com/user-attachments/assets/17a5b2cb-f8e0-40a3-92c6-8039b30fc2eb) ![blinkiesCafe-Ny](https://github.com/user-attachments/assets/c4843031-e5c0-42b9-ba80-f256e11c064d)
