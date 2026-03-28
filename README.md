@@ -2,7 +2,7 @@
 
 sp: https://angelfilly.straw.page
 
-pt sp: https://angelponytown.straw.page/
+the ponytown strawpage is GONE i ate it
 
 ⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
 
