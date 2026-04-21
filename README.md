@@ -1,54 +1,23 @@
-![just my header hehe](https://github.com/user-attachments/assets/f98e2719-ec2f-46b7-b2f8-04f3c587ffb5 "meow")
+![my header](https://i.pinimg.com/736x/8d/49/53/8d49538e1073c4acddcf80f8423f9bea.jpg)
 
-sp: https://angelfilly.straw.page
+# yo yo yoo
+⋆｡°✩  this is my super uninteresting github except i redesigned it yeaaah
 
-the ponytown strawpage is GONE i ate it
 
-⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
 
-𝙞'𝙙 𝙡𝙞𝙠𝙚 𝙩𝙤 𝙬𝙖𝙡𝙠 𝙖𝙧𝙤𝙪𝙣𝙙 𝙞𝙣 𝙮𝙤𝙪𝙧 𝙢𝙞𝙣𝙙 𝙨𝙤𝙢𝙚𝙙𝙖𝙮｡
+## info
+⋆｡°✩  you can read my strawpage for more information about me but if you're short on time here's a summary
 
-‎ـــــــــــــــــــﮩ٨ـ
 
-꩜ haiii ^_^ i'm angel. i own this github account (duh!) 
-> no i am not an actual angel! :( i have bat wings
+⋆.𐙚 ̊   my name is angel
+      ⭑    formerly *katsy / kat / flower*  depending on what year you knew me
+      ⭑    don't call me any of these names though this is just for old moot reach
 
-꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱
+⋆.𐙚 ̊   i go by she / they,  lesbian, demigirl & asexual
 
-★ lesbian and asexual, demigirl!!
+⋆.𐙚 ̊   i am the most average smelly pt player ever don't expect anything cool im sorry
 
-꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱
-
-꩜ darkwoke 0.o (if ur a magaist or a prolifer get OUT of my sight i hate u)
-
-꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱
-
-★ paints rocks and pets cats for a living
-
-꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱
-
-꩜ idk how to work github.
-
-꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱
-
-★ basic dni + snowgrassy shippers getout GET OTU GET OUT
-
-꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱
-
-꩜ minor!! pls dni if youre uncomfy with tgat
-
-꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱
-
-★ go follow my strawpage do ut NWOOWOWOOWOWO
-
-꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱
-
-꩜ add me on disc if u wanna talk ^_^ --> flowerfilly_
-
-꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱
-
-★ baibai!
-
-⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
-
-this part is just blinkes lololol
+⋆.𐙚 ̊   i am DARK WOKE very woke i am the woker
+      ⭑    i am not a safe space for magaists or prolifers at ALL DNIDNIDNI HEAVY DNI
+      ⭑    why are you even on ponytown. go colonize zepeto or something u loser
+⋆.𐙚 ̊   i am extremely chronically online
